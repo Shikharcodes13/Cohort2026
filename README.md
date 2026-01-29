@@ -55,3 +55,4 @@ For inquiries, please refer to the contact information in the resume.
 
 © 2026 Shikhar Parashar. All rights reserved.
 
+
